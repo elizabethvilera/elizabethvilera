@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-![](https://tenor.com/pt-BR/view/runa-shirakawa-kimizero-anime-wink-peace-gif-16489063035025876134)
+  
+![image](https://github.com/user-attachments/assets/492df807-65a6-4515-ac19-94d9bb572bf0)
